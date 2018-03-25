@@ -1,2 +1,2 @@
-# Dannysong98.github.io
-THIS IS MY STORY HOUSE! WELCOME!
+# 小宋君的故事屋
+欢迎大家来做客~随意歇息吧。
